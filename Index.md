@@ -1,1 +1,0 @@
-Zaeba! Maksimalnaya
